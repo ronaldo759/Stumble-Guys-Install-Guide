@@ -13,4 +13,4 @@ For a stable and ban-safe experience you should:
 I recorded and tested all steps in detail with screenshots and checksum verification on my blog:  
 👉 **Stable Stumble Guys MOD APK installation steps 2025** (Visit if you want an error-free tested guide)
 
-*(Only 1 link — avoid repeating across lines)*
+*(Only 1 link — avoid repeating across lines)* https://stumbleguysapk.de/
